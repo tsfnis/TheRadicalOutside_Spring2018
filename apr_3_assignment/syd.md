@@ -1,6 +1,6 @@
 ## Fem(inist) Manifestos
 
-Confronted with so many choices of readings I decided to focus on gender-relevant manifestos (I use this phrase since they don't all explicitly say feminist). I was curious to see if there were any trends or changes over time, and I also recently ready a kind of TERFy interview about xenofeminism and was curious about the manifesto itself. So I investigated all or in part of:
+Confronted with so many choices of readings I decided to focus on gender-relevant manifestos (I use this phrase since they don't all explicitly say feminist). I was curious to see if there were any trends or changes over time, and I also recently read a kind of TERFy interview about xenofeminism and was curious about the manifesto itself. So I investigated all or in part of:
 
 Cyborg Manifesto (1984)
 Cyberfeminist Manifesto for the 21st Century (1991)
